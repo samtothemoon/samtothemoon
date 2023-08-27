@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @samtothemoon
+- 👀 I’m interested in science, AI development and physics
+- 🌱 I’m currently learning ... whatever works for me
+- 💞️ I’m looking to collaborate on ... no idea yet
+- 📫 How to reach me ... samchaqan@gmail.com
